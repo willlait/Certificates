@@ -1,0 +1,1 @@
+Pasta com certificados de conclusão/qualificação.
